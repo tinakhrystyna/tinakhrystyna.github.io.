@@ -1,1 +1,1 @@
-# tinakhrystyna.github.io.
+# tinakhrystyna.github.io
